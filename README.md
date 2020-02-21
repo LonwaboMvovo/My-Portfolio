@@ -1,2 +1,2 @@
 # Portfolio
-Portfolio of all my projects
+Portfolio of all Lonwabo Mvovo's projects
